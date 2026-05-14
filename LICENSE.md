@@ -1,4 +1,4 @@
-# 
+# high-frequency osmosis trading bot Algorithm | token-swapping + token-launch-monitoring offers the most advanced osmosis trading bot, with token-swapping and
 
 
 
